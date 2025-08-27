@@ -31,7 +31,7 @@ Creatividad 🎨 | Trabajo en equipo 🤝 | Liderazgo | Análisis de requerimien
 
 ## 📫 Contáctame  
 - **📍 Ubicación:** Bogotá, Colombia  
-- 💼 [**LinkedIn**]((https://www.linkedin.com/in/natalia-castro-bejarano-b5991a1ab))
+- ** ℹ️LinkedIn:** [Natalia Castro Bejarano](https://www.linkedin.com/in/natalia-castro-bejarano-b5991a1ab)  
 - 🌐 [**Portafolio**](#)
 
 ---
